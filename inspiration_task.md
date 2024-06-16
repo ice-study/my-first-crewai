@@ -1,0 +1,1 @@
+A comprehensive list of examples of challenge-based content from different industries, complete with descriptions, as outlined above.
